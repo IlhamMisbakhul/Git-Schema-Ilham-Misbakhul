@@ -1,3 +1,0 @@
-Cerita 4 Paragraf 
-Max merupakan seorang anak laki-laki yang kesepian sejak lahir. Tidak ada anggota keluarga lain yang menemaninya, bahkan ayah dan ibu. Sejak kecil, Max hanya ditemani oleh seekor burung merpati berwarna putih dan tinggal bersama di sebuah desa. Max sudah bisa menerima kehidupannya yang sepi itu, ia berpikir semua akan baik-baik saja selama merpati masih menemaninya. 
-Namun suatu hari, tiba-tiba seorang laki-laki gagah menghampiri rumah Max. Laki-laki itu menghancurkan rumah dan mencuri barang. Max tidak dapat berkutik di depan laki-laki jahat tersebut. Max hanya menangisi keadaannya, rumah yang sudah hancur serta merpatinya yang sudah terbunuh. 
