@@ -1,1 +1,3 @@
 Cerita 4 Paragraf 
+Kepergian merpatinya membuat Max putus asa. Namun, Max berpikir mungkin saja ada keajaiban jika ia mencari mata air ajaib yang sudah sering dibicarakan oleh orang-orang. Katanya, mata air ajaib tersebut dapat menyembuhkan sakit dan membangkitkan yang mati.ÿ Akhirnya Max berjalan mencari mata air tersebut selama 3 hari. Mata air tersebut terletak di bawah kaki gunung. Max memberi merpatinya minum dan memandikannya dengan air tersebut. 
+Namun keajaiban akhirnya datang, merpati tersebut berubah menjadi seorang wanita. Ternyata ia merupakan ibu kandung Max yang telah disihir oleh penyihir selama ini. 
